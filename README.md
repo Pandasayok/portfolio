@@ -57,5 +57,5 @@
 - Telegram: [@DmiT_Tsy](https://t.me/DmiT_Tsy)  
 - Email: cybenko2222@yandex.ru  
 - GitHub: [Pandasayok](https://github.com/Pandasayok)
-- Номер теоефона: +7(906) 415-63-37
+- Номер телефона: +7(906) 415-63-37
 
